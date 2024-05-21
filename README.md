@@ -1,0 +1,11 @@
+- 👋 Hi, I’m @RobinaOk
+- 👀 I’m interested in meeting and connecting with people through mutual interest and goals. I love travelling and organising events and itenirary.
+- 🌱 I’m currently learning acupunture to widen my clinical scope of skills and practice.
+- 💞️ I’m looking to collaborate on new projects through new employment which align with my interest. 
+- 📫 You can reach me through my email.
+- 😄 Pronouns: She, Her
+- ⚡ Fun fact: Funny,easy going good at building rapport and excellent at empathy and organisation. 
+- 😈 I am very good at organising travel. I have travel for duration of 1-2 months by myself through Europe, America and South East Asia.  
+- 👂 My qualifications are: MBBS, FRACGP, 24 Years as a Family Physician, Certificate in eCommerce, Business Governance, Certificate of Allergic Diseases
+- RobinaOk/RobinaOk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  
